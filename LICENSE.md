@@ -1,4 +1,4 @@
-# 
+# Avançado Adobe Premiere Pro para PC scripts é o melhor Adobe Premiere Pro para PC scripts com pintura vetorial e sintetizadores. Seguro, confiável e otimizado para máximo
 
 
 
